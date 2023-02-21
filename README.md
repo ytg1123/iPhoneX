@@ -16,12 +16,16 @@ https://www.amazon.co.jp/有限会社小島通商-くねローゼ-レッド-【�
 https://page.auctions.yahoo.co.jp/jp/auction/k1078733477?notice=rats<br>
 
 ■ iPhoneX バッテリー交換　作業記録写真<br>
-・このiPhoneは孫にあげたもの、壊してばっかりです<br>
+・このiPhoneXは孫にあげたもの、壊してばっかりです<br>
 ・去年液晶板を割ってしまい交換してます<br>
 ・今年、またまた液晶割って交換しました<br>
 ・実は２年前にapple正規店カメラのキタムラ町田店でバッテリー交換実施済み<br>
 　２年使って最大容量91％表示ですが絶対に嘘ですね、壊れてる。なので交換しました<br>
-
+・Lightningコネクタ部分のスターネジを外し、吸着工具で液晶板を開け方向に加力させつつ接着テープを剥がす<br>
+　これは関連サイトでやりかたの動画がいっぱい公開されてますので参考にしてみてください<br>
+ https://bunkaikoubou.jp/iphone/iphoneX/x_1bat.html<br>
+ https://www.youtube.com/watch?v=bAUMld7rSv8<br>
+ 
 ![](/A4E79CF0-D82A-490B-A53C-EDD42D10CBDD.MOV)
 ![](/IMG_5579.jpg)
 ![](/IMG_5581.jpg)
