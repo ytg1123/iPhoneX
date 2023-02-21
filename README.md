@@ -39,4 +39,6 @@ https://page.auctions.yahoo.co.jp/jp/auction/k1078733477?notice=rats<br>
 ![](/IMG_5579.jpg)
 ![](/IMG_5581.jpg)
 ![](/IMG_5582.jpg)
+
+■ 最後に防水テープを貼ってしっかりくっつける工程<br>
 ![](/S__4079629.jpg)
