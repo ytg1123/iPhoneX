@@ -3,7 +3,7 @@ README
 ■ 液晶板と本体を固定する自作ツール
 ![](/IMG_5580.jpg)
 ![](/IMG_5583.jpg)
-https://www.amazon.co.jp/%E6%9C%89%E9%99%90%E4%BC%9A%E7%A4%BE%E5%B0%8F%E5%B3%B6%E9%80%9A%E5%95%86-%E3%81%8F%E3%81%AD%E3%83%AD%E3%83%BC%E3%82%BC-%E3%83%AC%E3%83%83%E3%83%89-%E3%80%90%E9%80%81%E6%96%99%E7%84%A1%E6%96%99%E3%80%91/dp/B01GO1KUFI/ref=sr_1_1?keywords=%E6%9C%89%E9%99%90%E4%BC%9A%E7%A4%BE%E5%B0%8F%E5%B3%B6%E9%80%9A%E5%95%86&qid=1676940480&sr=8-1
+https://www.amazon.co.jp/有限会社小島通商-くねローゼ-レッド-【送料無料】/dp/B01GO1KUFI/ref=sr_1_1?keywords=有限会社小島通商&qid=1676940480&sr=8-1
 
 ■ iPhoneX バッテリー交換　作業記録写真
 ![](/A4E79CF0-D82A-490B-A53C-EDD42D10CBDD.MOV)
