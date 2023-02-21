@@ -15,6 +15,7 @@ https://www.amazon.co.jp/有限会社小島通商-くねローゼ-レッド-【�
 　アップルロゴはないがそれ以外はApple純正と同じ表記でした。
 　iPhoneX初期の頃のバッテリーにはアップルロゴがない時代があったらしい。
 
+
 電池購入情報は以下サイト　　　　　
 https://page.auctions.yahoo.co.jp/jp/auction/k1078733477?notice=rats
 
