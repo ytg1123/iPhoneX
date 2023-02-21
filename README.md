@@ -19,7 +19,7 @@ https://www.amazon.co.jp/有限会社小島通商-くねローゼ-レッド-【�
 　アップルロゴはないがそれ以外はApple純正と同じ表記でした。<br>
 ※iPhoneX初期の頃のバッテリーにはアップルロゴがない時代があったらしい。<br>
 ※電池購入情報は以下サイト　<br>　　　　
-https://page.auctions.yahoo.co.jp/jp/auction/k1078733477?notice=rats<br>
+https://page.auctions.yahoo.co.jp/jp/auction/d1081714836<br>
 
 ■ iPhoneX 液晶版交換について<br>
 ・有機ELの液晶板ですが最近のiOSはTRUETONE機能が実装されています<br>
