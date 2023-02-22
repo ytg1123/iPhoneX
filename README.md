@@ -12,7 +12,7 @@ https://www.amazon.co.jp/有限会社小島通商-くねローゼ-レッド-【�
 ■ 防水シート<br>
 Apple純正仕様の防水シートは弾力性があり伸縮します。<br>
 ヤフー楽天Amazonなどで売ってるものは伸縮性が無く防水効果がありません。<br>
-ちなみに関東のiPhone修理店は防水効果の無いシートを使っています。
+ちなみに関東のiPhone修理店は防水効果の無いシートを使っています。<br>
 https://ja.aliexpress.com/item/32835202656.html?spm=a2g0o.order_list.order_list_main.5.ef7b585ajvHQdI&gatewayAdapt=glo2jpn<br>
 
 ■ iPhoneX バッテリー交換　作業記録写真<br>
