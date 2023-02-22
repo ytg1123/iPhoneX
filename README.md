@@ -6,6 +6,13 @@ README<br>
 ※くねくね棒は以下で販売してました、クリップはダイソーの100円商品です。<br>
 https://www.amazon.co.jp/有限会社小島通商-くねローゼ-レッド-【送料無料】/dp/B01GO1KUFI/ref=sr_1_1?keywords=有限会社小島通商&qid=1676940480&sr=8-1<br>
 
+■ iPhoneX 開けるTool<br>
+![](/04.jpg)<br>
+
+■ 防水シート<br>
+https://ja.aliexpress.com/item/32835202656.html?spm=a2g0o.order_list.order_list_main.5.ef7b585ajvHQdI&gatewayAdapt=glo2jpn<br>
+![](/IMG_5603.MOV)
+
 ■ iPhoneX バッテリー交換　作業記録写真<br>
 ・実は２年前にapple正規店カメラのキタムラ町田店でバッテリー交換実施済み<br>
 　２年使って最大容量91％表示ですが嘘ですね。なので交換しました<br>
@@ -14,12 +21,18 @@ https://www.amazon.co.jp/有限会社小島通商-くねローゼ-レッド-【�
 　アップルロゴはないがそれ以外はApple純正と同じ表記でした。<br>
 　iPhoneX初期の頃のバッテリーにはアップルロゴがない時代があったらしい。<br>
 
-
 電池購入情報は以下サイト　<br>　　　　
 https://page.auctions.yahoo.co.jp/jp/auction/k1078733477?notice=rats<br>
 
 ![](/A4E79CF0-D82A-490B-A53C-EDD42D10CBDD.MOV)
 ![](/IMG_5579.jpg)
+![](/IMG_5580.jpg)
 ![](/IMG_5581.jpg)
 ![](/IMG_5582.jpg)
+![](/IMG_5583.jpg)
+![](/IMG_5584.jpg)
+![](/IMG_5585.jpg)
+![](/IMG_5597.jpg)
+![](/IMG_5598.jpg)
+![](/IMG_5599.jpg)
 ![](/S__4079629.jpg)
