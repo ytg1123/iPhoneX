@@ -32,7 +32,6 @@ https://ja.aliexpress.com/item/32835202656.html?spm=a2g0o.order_list.order_list_
 電池購入情報は以下サイト　<br>　　　　
 https://page.auctions.yahoo.co.jp/jp/auction/k1078733477?notice=rats<br>
 
-![](/A4E79CF0-D82A-490B-A53C-EDD42D10CBDD.MOV)
 ![](/IMG_5619.jpg)
 ![](/IMG_5620.jpg)
 ![](/IMG_5621.jpg)
