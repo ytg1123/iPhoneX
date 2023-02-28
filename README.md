@@ -1,4 +1,5 @@
 iPhoneXのバッテリ交換<br>
+※ 動画での紹介　https://www.youtube.com/watch?v=Itn6JYwWeVE
 
 ■ 液晶板と本体を固定する自作ツール<br>
 ![](/IMG_5580.jpg)
