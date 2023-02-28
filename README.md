@@ -33,6 +33,14 @@ https://ja.aliexpress.com/item/32835202656.html?spm=a2g0o.order_list.order_list_
 https://page.auctions.yahoo.co.jp/jp/auction/k1078733477?notice=rats<br>
 
 ![](/A4E79CF0-D82A-490B-A53C-EDD42D10CBDD.MOV)
+![](/IMG_5619.jpg)
+![](/IMG_5620.jpg)
+![](/IMG_5621.jpg)
+![](/IMG_5622.jpg)
+![](/IMG_5623.jpg)
+![](/IMG_5624.jpg)
+![](/IMG_5625.jpg)
+![](/IMG_5626.jpg)
 ![](/IMG_5579.jpg)
 ![](/IMG_5580.jpg)
 ![](/IMG_5581.jpg)
