@@ -26,6 +26,8 @@ https://store.shopping.yahoo.co.jp/kksshop/<br>
 
 以下AliExpressで売ってるものは純正仕様に近い商品となっています、凄く安いです<br>
 ※防水テープを保護してる透明青のシートは2層仕様、純正仕様は3層仕様です。<br>
+
+https://youtu.be/lSJ7YQedoTY<br>
 https://ja.aliexpress.com/item/32835202656.html?spm=a2g0o.order_list.order_list_main.5.ef7b585ajvHQdI&gatewayAdapt=glo2jpn<br>
 
 ■ iPhoneX バッテリー交換　作業記録写真<br>
