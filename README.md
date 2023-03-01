@@ -17,7 +17,7 @@ Apple純正仕様の防水シートは弾力性があり伸縮します。<br>
 ちなみに関東のiPhone修理店は防水効果の無いシートを使っています。<br>
 ※ 動画での紹介<br>
 https://youtu.be/lSJ7YQedoTY<br>
-https://youtube.com/shorts/-r_rs9oqDCQ　<br>
+https://www.youtube.com/shorts/-r_rs9oqDCQ　<br>
 
 以下　ヤフーで買える本物純正仕様の防水テープです、1枚128円。<br>
 https://store.shopping.yahoo.co.jp/kksshop/<br>
