@@ -2,8 +2,8 @@ iPhoneXのバッテリ交換<br>
 ※ 動画での紹介　https://www.youtube.com/watch?v=Itn6JYwWeVE
 
 ■ 液晶板と本体を固定する自作ツール<br>
-![](/IMG_5580.jpg)
-![](/IMG_5583.jpg)
+![](/IMG_5580.jpg)<br>
+![](/IMG_5583.jpg)<br>
 
 ※くねくね棒は以下で販売してました、クリップはダイソーの100円商品です。<br>
 https://www.amazon.co.jp/有限会社小島通商-くねローゼ-レッド-【送料無料】/dp/B01GO1KUFI/ref=sr_1_1?keywords=有限会社小島通商&qid=1676940480&sr=8-1<br>
@@ -15,17 +15,17 @@ https://www.amazon.co.jp/有限会社小島通商-くねローゼ-レッド-【�
 Apple純正仕様の防水シートは弾力性があり伸縮します。<br>
 ヤフー楽天Amazonなどで売ってるものは伸縮性が無く防水効果がありません。<br>
 ちなみに関東のiPhone修理店は防水効果の無いシートを使っています。<br>
-※ 動画での紹介
-https://youtu.be/lSJ7YQedoTY
-https://youtube.com/shorts/osUGdlg63TM?feature=share
+※ 動画での紹介<br>
+https://youtu.be/lSJ7YQedoTY<br>
+https://youtube.com/shorts/osUGdlg63TM?feature=share　<br>
 
-以下　ヤフーで買える本物純正仕様の防水テープです、1枚128円。
-https://store.shopping.yahoo.co.jp/kksshop/
-※防水テープを保護してる透明青のシートが3層仕様です
-![](/IMG_5629.jpg)
+以下　ヤフーで買える本物純正仕様の防水テープです、1枚128円。<br>
+https://store.shopping.yahoo.co.jp/kksshop/<br>
+※防水テープを保護してる透明青のシートが3層仕様です<br>
+![](/IMG_5629.jpg)<br>
 
 以下AliExpressで売ってるものは純正仕様に近い商品となっています、凄く安いです<br>
-※防水テープを保護してる透明青のシートは2層仕様、純正仕様は3層仕様です。
+※防水テープを保護してる透明青のシートは2層仕様、純正仕様は3層仕様です。<br>
 https://ja.aliexpress.com/item/32835202656.html?spm=a2g0o.order_list.order_list_main.5.ef7b585ajvHQdI&gatewayAdapt=glo2jpn<br>
 
 ■ iPhoneX バッテリー交換　作業記録写真<br>
