@@ -18,7 +18,10 @@ Apple純正仕様の防水シートは弾力性があり伸縮します。<br>
 ※ 動画での紹介
 https://youtu.be/lSJ7YQedoTY
 
-以下AliExpressで売ってるものは純正シートに近い商品となっています、そんなに高くないのでかってみるといい<br>
+以下　ヤフーで買える本物純正仕様の防水テープです、1枚128円。
+https://store.shopping.yahoo.co.jp/kksshop/
+
+以下AliExpressで売ってるものは純正仕様に近い商品となっています、凄く安いです<br>
 https://ja.aliexpress.com/item/32835202656.html?spm=a2g0o.order_list.order_list_main.5.ef7b585ajvHQdI&gatewayAdapt=glo2jpn<br>
 
 ■ iPhoneX バッテリー交換　作業記録写真<br>
