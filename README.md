@@ -21,8 +21,11 @@ https://youtube.com/shorts/osUGdlg63TM?feature=share
 
 以下　ヤフーで買える本物純正仕様の防水テープです、1枚128円。
 https://store.shopping.yahoo.co.jp/kksshop/
+※防水テープを保護してる透明青のシートが3層仕様です
+![](/IMG_5629.jpg)
 
 以下AliExpressで売ってるものは純正仕様に近い商品となっています、凄く安いです<br>
+※防水テープを保護してる透明青のシートは2層仕様、純正仕様は3層仕様です。
 https://ja.aliexpress.com/item/32835202656.html?spm=a2g0o.order_list.order_list_main.5.ef7b585ajvHQdI&gatewayAdapt=glo2jpn<br>
 
 ■ iPhoneX バッテリー交換　作業記録写真<br>
